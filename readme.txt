@@ -1,2 +1,2 @@
 wagagasgasasd
-creating branch is quick
+creating branch is quick and simple
